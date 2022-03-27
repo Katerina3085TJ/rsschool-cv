@@ -40,7 +40,7 @@ of Trade Unions of Belarus "International University “MITSO”
 ************************************************************************************
 ## Experience
 
-+ July 2021 -till now CCL "System Analist"- business analyst
++ July 2021 -till now CCL "System Analyst"- business analyst
 + May 2012 – till July 2021 CCL “Tehnodetal” – chief accountant
 + June 2007 – April 2012 CCL “AgroOptServis” – accountant, chief accountant 
 + January 2006 – May 2007 PTUE “Misolstojindustriya” – accountant
